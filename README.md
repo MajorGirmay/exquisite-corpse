@@ -12,3 +12,16 @@ According to Hindu scriptures, Lord Ram was born on the the day of Ram Navami. A
 
 ## Ravan invited his death due to his small mistake
 King of Lanka "Ravan" wanted to conquer the whole world. But he knew that his dream could not come true without god's blessings. So he began to do great penance to please his anestor god Brahma.
+
+
+**Little Red Riding Hood** was enjoying the warm summer day so much, that she didn't notice a dark shadow approaching out of the forest behind her...
+
+Suddenly, the wolf appeared beside her.
+
+> "What are you doing out here, little girl?" the wolf asked in a voice as friendly as he could muster.
+
+> "I'm on my way to see my Grandma who lives through the forest, near the brook,"  **Little Red Riding Hood** replied.
+
+Then she realized how late she was and quickly excused herself, rushing down the path to her Grandma's house. 
+
+The wolf, in the meantime, took a shortcut.

@@ -11,4 +11,4 @@ According to Hindu scriptures, Lord Ram was born on the the day of Ram Navami. A
 ![10-Headed-Ravan](10-headed-Ravan.jpg)
 
 ## Ravan invited his death due to his small mistake
-    King of Lanka "Ravan" wanted to conquer the whole world. But he knew that his dream could not come true without god's blessings. So he began to do great penance to please his anestor god Brahma.
+King of Lanka "Ravan" wanted to conquer the whole world. But he knew that his dream could not come true without god's blessings. So he began to do great penance to please his anestor god Brahma.

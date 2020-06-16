@@ -1,6 +1,6 @@
 # exquisite-corpse
 
-##Gold 
+## Gold 
 
 ## Island
 
